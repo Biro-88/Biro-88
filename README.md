@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Biro, a web designer and developer
+- 👀 I’m interested in web designing and coding
+- 🌱 I’m currently learning web designing and development
+- 💞️ I’m looking to collaborate with the team of web designer and development 
+- 📫 You can reach out to me through the following; birookwory@gmail.com,on facebook Biro Okwory or call me @ +254718858239
+--->
